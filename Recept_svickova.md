@@ -1,4 +1,4 @@
 1. Svíèkovou osolíme, protkneme 2/3 slaniny nakrájené na klínky a na tuku zprudka po všech stranách opeèeme. Maso za chvíli vyjmeme, pøidáme zbytek na kostièky nakrájené slaniny, oèištìnou na plátky nakrájenou zeleninu, cibuli a osmahneme do svìtlehnìda.
 2. Pak znovu vloíme maso, pøidáme koøení, mírnì podlijeme a dusíme v troubì. Maso poléváme šávou a podle potøeby podléváme vıvarem. Mìkké maso vyjmeme, šávu vydusíme na tuk, zaprášíme moukou, osmahneme a postupnì øedíme zbytkem vıvaru a smetanou.
 3. Omáèku dochutíme cukrem, citronovou šávou nebo octem a dobøe povaøíme. Potom omáèku prolisujeme pøes cedník. Nalijeme ji na maso a ještì na plotnì prohøejeme. Maso nakrájíme na plátky. Podáváme s knedlíky a brusinkami nebo rybízovım demem.
-4. Dobrou chu.
+4. Dobrou chu!
